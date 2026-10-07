@@ -1,0 +1,1 @@
+![Handwriiten notes](<WhatsApp Image 2026-10-07 at 11.10.44 PM.jpeg>)
